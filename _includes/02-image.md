@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Image of logo](https://www.kindpng.com/picc/m/484-4843405_illuminati-symbol-hd-png-download.png)
