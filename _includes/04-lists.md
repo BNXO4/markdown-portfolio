@@ -1,4 +1,4 @@
 **Fav YouTube Influencers✨**
-* MKBHD
-* Piximperfect
-* Peter McKinnon
+* _MKBHD_
+* _Piximperfect_
+* _Peter McKinnon_
